@@ -1,4 +1,4 @@
-# Charles 'Fish' Chin 😃
+# 'Fish'  😃
 
 - Working from home
 
